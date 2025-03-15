@@ -10,7 +10,7 @@ Don’t wait—these deals won’t last forever, so act fast and start saving to
 
 Use this coupon to get 50% off on Dux-Soup plan. This is a limited-time offer. This offer is applied to Team Annual Cloud, Team Monthly Cloud, Team Monthly Pro, Team Annual Pro, Team Monthly Turbo, Team Annual Turbo. Claim it before it gets expired.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfSXTFzjXAWXuUBW-cNljvI2zIWkqF3d4wHrSTT9AkpPvQ0aQtK6vixYil7_H0phSfDhJbAlO3rEpgNGl6sV9f8D0Jfvu0Y6oyXoUrQp7J7CpyYhlNvM0CZN57Nuf_avg9pNqLcPQ?key=Ashva-u4wTbGrSML_ZpdeTFG)](https://www.dux-soup.com/pricing?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/c0f0e4c9-c7b6-4281-8f2f-b39c62fd2013)](https://www.dux-soup.com/pricing?fpr=shadow)
 
 ## Top Dux-Soup Coupon Codes for 2025
 
@@ -37,7 +37,7 @@ Ready to dive into the best deals? Here’s a rundown of the current Dux-Soup co
 * Expiry Date: Ends on June 30, 2025—make sure to use it before the deadline!
 * How to Use: Apply the code DUXX20 during checkout to receive the discount on your first 3 months.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfSXTFzjXAWXuUBW-cNljvI2zIWkqF3d4wHrSTT9AkpPvQ0aQtK6vixYil7_H0phSfDhJbAlO3rEpgNGl6sV9f8D0Jfvu0Y6oyXoUrQp7J7CpyYhlNvM0CZN57Nuf_avg9pNqLcPQ?key=Ashva-u4wTbGrSML_ZpdeTFG)](https://www.dux-soup.com/pricing?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/c0f0e4c9-c7b6-4281-8f2f-b39c62fd2013)](https://www.dux-soup.com/pricing?fpr=shadow)
 
 ---
 
@@ -51,7 +51,7 @@ Redeeming your Dux-Soup coupon code is quick and easy. Just follow these simple 
 4. Confirm Your Discount: Once you’ve applied the code, check that your discount has been correctly applied to your order.
 5. Complete Your Purchase: After confirming the discount, finish the checkout process and enjoy your new Dux-Soup subscription!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfSXTFzjXAWXuUBW-cNljvI2zIWkqF3d4wHrSTT9AkpPvQ0aQtK6vixYil7_H0phSfDhJbAlO3rEpgNGl6sV9f8D0Jfvu0Y6oyXoUrQp7J7CpyYhlNvM0CZN57Nuf_avg9pNqLcPQ?key=Ashva-u4wTbGrSML_ZpdeTFG)](https://www.dux-soup.com/pricing?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/c0f0e4c9-c7b6-4281-8f2f-b39c62fd2013)](https://www.dux-soup.com/pricing?fpr=shadow)
 
 ---
 
@@ -75,7 +75,7 @@ Dux-Soup offers a range of plans, each designed to meet the needs of different u
   * With DUFFREE: Free 7-day trial
   * Try out the Pro plan for free with a 7-day trial, giving you full access to premium features before committing to a paid subscription.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfSXTFzjXAWXuUBW-cNljvI2zIWkqF3d4wHrSTT9AkpPvQ0aQtK6vixYil7_H0phSfDhJbAlO3rEpgNGl6sV9f8D0Jfvu0Y6oyXoUrQp7J7CpyYhlNvM0CZN57Nuf_avg9pNqLcPQ?key=Ashva-u4wTbGrSML_ZpdeTFG)](https://www.dux-soup.com/pricing?fpr=shadow)
+[![Discount button](https://github.com/user-attachments/assets/c0f0e4c9-c7b6-4281-8f2f-b39c62fd2013)](https://www.dux-soup.com/pricing?fpr=shadow)
 
 ---
 
