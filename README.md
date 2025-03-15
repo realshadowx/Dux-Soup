@@ -1,5 +1,7 @@
 # Dux-Soup Coupon Code 2025 - 50% Off & Free Trial 🔥
 
+Hello folks, Amir here.
+
 In this article, we’ll walk you through the latest Dux-Soup coupon codes for 2025, including details on how to score [50% off](https://www.dux-soup.com/pricing?fpr=shadow) and how to access a free trial.
 
 Don’t wait—these deals won’t last forever, so act fast and start saving today!
