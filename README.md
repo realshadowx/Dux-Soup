@@ -1,4 +1,4 @@
-# Dux-Soup Coupon Code 2025 - 50% Off & Free Trial 🔥
+# Dux-Soup Coupon Code 2025 - 50% Off & Free Trial
 
 Hello folks, Amir here.
 
