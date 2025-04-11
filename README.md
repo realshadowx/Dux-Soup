@@ -1,20 +1,20 @@
-# Dux-Soup Coupon Code 2025 - 50% Off & Free Trial
+# Dux-Soup Coupon Code 2025 - 20% Off & Free Trial
 
 Hello folks, Amir here.
 
-In this article, we’ll walk you through the latest Dux-Soup coupon codes for 2025, including details on how to score [50% off](https://www.dux-soup.com/pricing?fpr=shadow) and how to access a free trial.
+In this article, we’ll walk you through the latest Dux-Soup coupon codes for 2025, including details on how to score [20% off](https://www.dux-soup.com/pricing?fpr=shadow) and how to access a free trial.
 
 Don’t wait—these deals won’t last forever, so act fast and start saving today!
 
-## Dux-Soup 50% Off Coupon
+## Dux-Soup 20% Off Coupon
 
-Use this coupon to get 50% off on Dux-Soup plan. This is a limited-time offer. This offer is applied to Team Annual Cloud, Team Monthly Cloud, Team Monthly Pro, Team Annual Pro, Team Monthly Turbo, Team Annual Turbo. Claim it before it gets expired.
+Use this coupon to get 20% off on Dux-Soup plan. This is a limited-time offer. This offer is applied to Team Annual Cloud, Team Monthly Cloud, Team Monthly Pro, Team Annual Pro, Team Monthly Turbo, Team Annual Turbo. Claim it before it gets expired.
 
 [![Discount button](https://github.com/user-attachments/assets/c0f0e4c9-c7b6-4281-8f2f-b39c62fd2013)](https://www.dux-soup.com/pricing?fpr=shadow)
 
-## 24% Off Dux Soup Professional Edition Coupon
+## 20% Off Dux Soup Professional Edition Coupon
 
-Save 24% when you upgrade to the Dux-Soup Professional Edition! This offer applies only to the Professional plan. Don’t miss out—grab this limited-time deal before it expires. Start automating your LinkedIn outreach at a lower cost today!
+Save 20% when you upgrade to the Dux-Soup Professional Edition! This offer applies only to the Professional plan. Don’t miss out—grab this limited-time deal before it expires. Start automating your LinkedIn outreach at a lower cost today!
 
 [![Discount button](https://github.com/user-attachments/assets/c0f0e4c9-c7b6-4281-8f2f-b39c62fd2013)](https://www.dux-soup.com/pricing?fpr=shadow)
 
@@ -24,10 +24,10 @@ Ready to dive into the best deals? Here’s a rundown of the current Dux-Soup co
 
 ### Coupon Code: DUXX50
 
-* Discount Details: Get 50% off on any Dux-Soup subscription.
+* Discount Details: Get 20% off on any Dux-Soup subscription.
 * Applicable Products/Services: This code applies to Dux-Soup’s Pro and Turbo plans.
 * Expiry Date: Available until December 31, 2025—so don’t wait too long to grab this deal!
-* How to Use: Enter the code DUXX50 during checkout on the Dux-Soup website to apply the 50% discount to your subscription.
+* How to Use: Enter the code DUXX50 during checkout on the Dux-Soup website to apply the 20% discount to your subscription.
 
 ### Coupon Code: DUFFREE
 
